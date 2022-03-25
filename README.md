@@ -1,0 +1,6 @@
+- 👋 Hi, I’m TinManWzHere
+- 👀 I’m interested in Minecraft and Coding at the moment. 
+- 🌱 I’m currently learning how to properly code, and use Minecraft code also. 
+- 💞️ I’m looking to collaborate on Coding games of many types! 
+- 📫 How to reach Me (Xbox=TinManWzHere) : (tingaydrew@outlook.com) (tingaydrew@icloud.com) 
+- I take advice and suggestions.. : ) 
